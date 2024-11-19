@@ -1,6 +1,6 @@
 ## Hi there 👾
 
-I'm Zixin (Rowling), a math enthusiast ✏️ | philosophy lover 📚 | interdisciplinary thinker 👩 who seeks the truth behind intelligence 🧠.
+I'm Zixin (Rowling), a math enthusiast ✏️ | philosophy lover 📚 | interdisciplinary thinker who seeks the truth behind intelligence 🧠.
 
 📧 Contact Information
 
